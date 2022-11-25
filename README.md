@@ -1,0 +1,2 @@
+# Minor AI for Society
+ 
